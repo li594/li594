@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+大家好！我是李小辉，来自福建漳州。
+
+在接下来的大学生活了，希望通过自己的努力，让自己拥有更美好的未来！
